@@ -1,2 +1,2 @@
 # 1NT22CS217
-[THE TASK IS SUBMITTED HERE IN THIS LINK ](file:///C:/Users/yasha/OneDrive/Desktop/1NT22CS217_YASHASCRAJU.htm)
+[THE TASK IS SUBMITTED HERE IN THIS LINK ](https://github.com/onvyashas/1NT22CS217/edit/main/README.md)
